@@ -1,4 +1,4 @@
-Gifu Local Eats: Approved by Picky Teens!Welcome to our fun guide to Gifu's best local comfort foods!
+Gifu Local Eats: Approved by Picky Teens! Welcome to our fun guide to Gifu's best local comfort foods!
 
 Fun Fact from My Childhood:
 During the COVID lockdown, I really wanted to eat Gohei Mochi, but it wasn't listed in the supermarket delivery catalog. So... I decided to make it myself!
