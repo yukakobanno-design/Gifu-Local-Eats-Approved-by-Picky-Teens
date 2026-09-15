@@ -1,3 +1,7 @@
+<img width="1920" height="1682" alt="蕎麦湯" src="https://github.com/user-attachments/assets/72132631-4e3f-454d-bdcf-3095c05cdc0a" />
+<img width="1920" height="1682" alt="蕎麦湯" src="https://github.com/user-attachments/assets/39cecd2e-6a56-4127-80ff-aa8bd84c6bff" />
+<img width="1440" height="1920" alt="やかん" src="https://github.com/user-attachments/assets/3c01be21-330e-44d8-ab73-c78234a46d8c" />
+<img width="1440" height="1920" alt="ひやしたぬき" src="https://github.com/user-attachments/assets/13b45afa-af51-4c0c-b33e-c352e8b80922" />
 Gifu Local Eats: Approved by Picky Teens! Welcome to our fun guide to Gifu's best local comfort foods!
 
 Fun Fact from My Childhood:
